@@ -1,0 +1,1 @@
+# SHIMO__DIPLOM
